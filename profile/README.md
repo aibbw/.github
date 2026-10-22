@@ -1,14 +1,14 @@
 <div align="center">
 
 <a href="https://chubby-gf.com/agithub14">
-  <img src="https://raw.githubusercontent.com/aibtw/.github/main/aibtw.jpg" alt="AI BBW Professional AI Companion Architecture and Reviews" width="100%" />
+  <img src="https://raw.githubusercontent.com/aibbw/.github/main/aibbw.jpg" alt="AI BBW Professional AI Companion Architecture and Reviews" width="100%" />
 </a>
 
 <h1>AI BBW: The Ultimate NSFW AI Companion Architecture and Review</h1>
 
 <p>
-  <a href="https://github.com/aibtw/.github/stargazers"><img src="https://img.shields.io/github/stars/aibtw/.github?style=for-the-badge&color=ff69b4" alt="Stars" /></a>
-  <a href="https://github.com/aibtw/.github/network/members"><img src="https://img.shields.io/github/forks/aibtw/.github?style=for-the-badge&color=blueviolet" alt="Forks" /></a>
+  <a href="https://github.com/aibbw/.github/stargazers"><img src="https://img.shields.io/github/stars/aibbw/.github?style=for-the-badge&color=ff69b4" alt="Stars" /></a>
+  <a href="https://github.com/aibbw/.github/network/members"><img src="https://img.shields.io/github/forks/aibbw/.github?style=for-the-badge&color=blueviolet" alt="Forks" /></a>
   <img src="https://img.shields.io/badge/Status-Active-brightgreen?style=for-the-badge" alt="Status" />
   <img src="https://img.shields.io/badge/Updated-2026-orange?style=for-the-badge" alt="Updated" />
   <img src="https://img.shields.io/badge/License-MIT-blue?style=for-the-badge" alt="License" />
@@ -200,8 +200,8 @@ Explore the best platforms of 2026, hand-picked and ranked by performance, memor
 <div align="center">
 <p><strong>AI BBW - Professional insights into the future of digital companionship.</strong></p>
 <p>
-  <a href="https://github.com/aibtw/.github/stargazers"><img src="https://img.shields.io/github/stars/aibtw/.github?style=social" alt="Stars" /></a>
-  <a href="https://github.com/aibtw/.github/network/members"><img src="https://img.shields.io/github/forks/aibtw/.github?style=social" alt="Forks" /></a>
+  <a href="https://github.com/aibbw/.github/stargazers"><img src="https://img.shields.io/github/stars/aibbw/.github?style=social" alt="Stars" /></a>
+  <a href="https://github.com/aibbw/.github/network/members"><img src="https://img.shields.io/github/forks/aibbw/.github?style=social" alt="Forks" /></a>
 </p>
 </div>
 
@@ -209,7 +209,7 @@ Explore the best platforms of 2026, hand-picked and ranked by performance, memor
 
 ## Keywords
 
-`AI BBW` - `aibtw` - `best NSFW AI chat` - `NSFW AI chatbot 2026` - `JOI Spicy` - `JuicyChat` - `HeraHaven` - `CrushOn AI` - `AI Haven` - `Nastia AI` - `Spicychat` - `unfiltered AI chat` - `adult AI chat` - `free NSFW AI` - `AI chat without filter` - `AI roleplay NSFW` - `AI companion adult` - `best AI porn chat` - `NSFW chatbot comparison` - `AI chat platforms 2026`
+`AI BBW` - `aibbw` - `best NSFW AI chat` - `NSFW AI chatbot 2026` - `JOI Spicy` - `JuicyChat` - `HeraHaven` - `CrushOn AI` - `AI Haven` - `Nastia AI` - `Spicychat` - `unfiltered AI chat` - `adult AI chat` - `free NSFW AI` - `AI chat without filter` - `AI roleplay NSFW` - `AI companion adult` - `best AI porn chat` - `NSFW chatbot comparison` - `AI chat platforms 2026`
 
 ---
 
